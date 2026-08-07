@@ -77,6 +77,7 @@ My goal is simple:
 
 💼 [LinkedIn](https://www.linkedin.com/in/egbeleke-adedeji/)  
 🍲 [Try ChopBetta AI](https://bit.ly/ChopBettaAI)
+🌐 [View My AI Portfolio](https://colossal-helicopter-12b.notion.site/EGBELEKE-ADEDEJI-AI-Portfolio-3b52ba2f947880a69bc3c9f8ec87df94)
 
 I'm open to **AI collaborations, learning opportunities, internships, projects and conversations with people building useful technology.**
 
